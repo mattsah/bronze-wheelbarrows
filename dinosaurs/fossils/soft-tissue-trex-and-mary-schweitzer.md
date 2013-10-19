@@ -10,9 +10,9 @@ While analyzing fossil remains, Mary Schweitzer, noticed what appeared to be red
 
 ## Key Points
 
-- "Dinosaur bone" is actually a traditional fossil, the bone and soft tissue was a small fraction of the specimen which has not completely fossilized.
+- "Dinosaur bone" is actually a traditional fossil, the bone and soft tissue was a small fraction of the specimen which had not completely fossilized.
 - The specimen was a small fragment, it is not as if Mary found a bone, cracked it in half and saw marrow pouring out.
-- Some of the strongest evidence supporting that this is blood was discovered using techniques that wouldn't work if evolution was not true.
+- Some of the strongest evidence supporting that this is actually blood comes from techniques which develop from the predictive capacity of the theory of evolution.
 
 ## References
 
